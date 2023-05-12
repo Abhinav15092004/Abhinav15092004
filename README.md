@@ -62,10 +62,10 @@ technologies to meet future requirements.</br>
  - 📍 **Uttarakhand Technical University**-----------------------**< 2019-2023 >**\
  📖**Bachelor's of technology-< Information Technology >**
  
- - 📍 **Jawahar Navodaya Vidyalaya, Dhanbad**------------------**< 2017-2019 >**\
+ - 📍 **Heritage inter college, Bijnor**------------------**< 2018-2020 >**\
    📖**Senior Secondary Schooling-< Intermediate Science >**
  
- - 📍 **Jawahar Navodaya Vidyalaya, Dhanbad**------------------**< 2012-2017 >**\
+ - 📍 **Heritage inter college, Bijnor**------------------**< 2014-2018 >**\
    📖**Secondary Schooling**
  
    
